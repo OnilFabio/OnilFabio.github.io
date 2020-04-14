@@ -9,4 +9,3 @@ eu tinha esquecido de falar o que eu queria falar
 
 As minhas experimentacoes
 
-fadsghafsgc897y
